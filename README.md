@@ -1,1 +1,1 @@
-# luploq.com
+# insightSeller.com
